@@ -1,7 +1,7 @@
- 👋 Hi, I’m @Qudus0
+ 👋 Hi, I’m Sulaimon Qudus O.
 - 👀 I’m a No-code/Low-code Automation Expert
 - 🌱 I’m an expert at what i do
-- 💞️ I’m looking to collaborate with business owners both small scale and large scale
+- 💞️ I’m looking to collaborate with business owners,both small scale and large scale
 - 📫 How to reach me qsulaimon0@gmail.com/09163733297
 
 <!---
